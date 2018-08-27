@@ -1,7 +1,9 @@
 # Iterating Thinking of Our Ending           
       
-            
-## 1st Letter About Ending &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 2018.8.28            
+                
+             
+             
+## 1st Letter About Ending————2018.8.28            
           
           
 **Human beings are born lonely, meaning that you have no awareness of yourself or zero characteristics if you have never felt lonely. In terms of individual happiness within some specific situation, I have faith in an optimum solution.**          
