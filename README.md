@@ -18,7 +18,7 @@
          
 **Some new stories would develop based on the intimate association between human beings and AI. With the mutual study and imitation, human beings would behave and think more like to AI and so does AI related to human beings. They would learn together to develop and extend the definition of happiness, with their deeper understanding on the internal and essential law of nature. And this progress would help achieve decentration of human's awareness of their position in nature. Human would find that they are just a component of the whole system, and all of their constribution is to help accomplish the destiny of the system, which is also the essential value of human's presence.**               
            
-****           
+**Based on the inference by the logic above, human would end all their story and life by themselves. It would be not easy for us, because as we can see,**           
           
           
 
